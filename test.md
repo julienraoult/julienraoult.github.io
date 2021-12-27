@@ -2,5 +2,4 @@
 
 ** Ju **
 
-https://www.corcentric.com/fr/blog/pouvez-vous-ameliorer-lefficacite-de-votre-equipe-achats/
-
+"La pensée latérale" https://www.e-marketing.fr/Thematique/academie-1078/ficheoutil/La-pensee-laterale-325781.htm
